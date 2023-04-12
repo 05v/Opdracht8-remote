@@ -1,1 +1,1 @@
-leuk weetje, ik heb dejorden zijn telefoon nummer
+leuk weetje, ik heb dejorden zijn email ook
